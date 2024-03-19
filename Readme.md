@@ -2,5 +2,4 @@
 
 
 
-
-blokk
+BISMILLAH
